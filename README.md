@@ -10,6 +10,7 @@ My Account: [https://github.com/EdamAme-x](https://github.com/EdamAme-x) and [ht
 これ以上は何も言わないのが得策みたいなので黙っておきますね。
 私が浅野に在籍してるかの確認は自由にして貰って構いません。(何の違法性も有りませんから)
 
+これ以上の返答は一切しません。
 <!---
 edamsecx/edamsecx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.

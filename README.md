@@ -15,7 +15,7 @@ My Account: [https://github.com/EdamAme-x](https://github.com/EdamAme-x) and [ht
 もし私が浅野に在籍していて、Orgにコミットしているのなら在籍しています。と素直に答えられるはずですよ笑
 
 これ以上の返答は一切しません。
-<!---
-edamsecx/edamsecx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
+<!--
+  この世に存在しない妄想上の人物を追っている人たちへ
+-->

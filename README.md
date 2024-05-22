@@ -15,3 +15,4 @@ My Account: [https://github.com/EdamAme-x](https://github.com/EdamAme-x) and [ht
 もし私が浅野に在籍していて、Orgにコミットしているのなら在籍しています。と素直に答えられるはずですよ
 
 これ以上の返答は一切しません。
+反応され次第消します。

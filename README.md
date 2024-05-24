@@ -5,7 +5,7 @@ coming soon
 
 My Account: [https://github.com/EdamAme-x](https://github.com/EdamAme-x) and [https://twitter.com/amex2189](https://twitter.com/amex2189)
 
-私の正体候補が兵庫県の糖質患者になったり、浅野の生徒会役員になったり、  
+私の正体候補が兵庫県の糖質患者になったり、浅野の生徒会役員になったり、 石川県の被災者、
 はたまた都内のフリーランスになったりと怪盗並みの多さですね笑笑  
 それと退学にはなって無いですよ笑笑、なる理由が無いですから。
 その吉岡竜司ガイジ？という人物の発言は予想に近い妄想だと捉えるのが普通でしょう。
